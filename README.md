@@ -1,2 +1,2 @@
-# NAME:Poosana Thassanavisut
+# NAME:ภูษณ  ทัศนวิสุทธิ์
 # STUDENT ID:620612161
